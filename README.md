@@ -5,3 +5,5 @@ Names of the members:
 
 1. Danna Sofia Salcedo Yepes
 2. Nathalia Valentina Cardoza Azuaje
+
+Link to the presentation video: https://youtu.be/Yk8cLupiTO4
